@@ -36,8 +36,9 @@ Suivez-nous pour les dernières nouveautés, promotions et astuces pour maximise
 - **[Instagram](https://www.instagram.com/hellcases.fr)** - Retrouvez les dernières promotions, codes exclusifs et annonces.
 - **[Twitter](https://x.com/hellcase234514)** - Suivez-nous pour des mises à jour en direct, annonces de promo et astuces Hellcase.
 - **[TikTok](https://www.tiktok.com/@hellcases.fr)** - Astuces rapides, offres exclusives et contenu pour les fans de CS:GO.
-- **[Bento](https://bento.me/hellcases)** - Astuces rapides, offres exclusives et contenu pour les fans de CS:GO.
-- **[Medium](https://medium.com/@hellcases18)** - Astuces rapides, offres exclusives et contenu pour les fans de CS:GO.
+- **[Bento](https://bento.me/hellcases)** - Tous nos liens rassembler
+- **[Medium](https://medium.com/@hellcases18)** - Nos Articles Medium
+- **[heylink](https://heylink.me/hellcases18/)** - Tous nos Réseaux en un seul endroit
 
 ---
 
